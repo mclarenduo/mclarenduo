@@ -1,2 +1,2 @@
-## huge oscar piastri kin !!!
+## huge oscar piastri fan !!!
 
